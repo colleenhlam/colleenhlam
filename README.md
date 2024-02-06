@@ -5,7 +5,7 @@
 
 ## More about me
 
-- I love 👩🏻‍🏫 teaching and working with children, 🌊 swimming/water polo/surfing, 🏕️ camping, and 💃🏻 dancing!
+- I love 👩🏻‍🏫 teaching and working with children, 🌊 swim/water polo/surfing, 🏕️ camping, and 💃🏻 dancing!
 
 ## Connect with me!
 📫 [Email](colleenlam@ucla.edu) | [LinkedIn](linkedin.com/in/colleenhlam)
